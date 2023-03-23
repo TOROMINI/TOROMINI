@@ -9,7 +9,7 @@
 - ⚡ I live in South Korea.  
   
 
-- 🔭 I’m High school 1st grade.  
+- 🔭 I’m High school 2nd grade.  
   
 
 - 📘 I’m curious of everything(?)  
